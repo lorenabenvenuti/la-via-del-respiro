@@ -5,8 +5,7 @@
 Il respiro è Vita
 =================
 
-Respirare in modo giusto è la premessa fondamentale  
-per ritrovare il vero benessere psico fisico.
+Respirare in modo giusto è la premessa fondamentale per ritrovare il vero benessere psico fisico.
 ---------------------------------------------------------------------------------------------------
 
 Il breathwork-rebirthing o respiro consapevole è una disciplina yogica che insegna a rigenerarsi respirando la forza vitale che si trova libera nell'aria. Le esperienze spiacevoli inibiscono il respiro creando tensioni e blocchi emotivi che si registrano nella nostra memoria cellulare come condizionamenti, portando stress e malessere. Attraverso il rebirthing i blocchi si dissolvono eliminando le paure del passato e la tensione del presente.
@@ -77,5 +76,3 @@ Possiamo cambiare il nostro atteggiamento interiore nei confronti di qualsiasi c
 Insomma, il Rebirthing si propone come viaggio di scoperta dentro se stessi, durante il quale possiamo anche incontrare e superare molte cose di cui forse abbiamo paura, consciamente o meno.
 
 Per superare questa paura, è importante confidare nel fatto che, come sostiene [Leonard Orr](http://www.rebirthingbreathwork.com/ "www.rebirthingbreathwork.com"), "nell'universo non esistono forze naturali che possano farti del male in alcun modo. Abbandonati, è la tua mente che crea ciò che avviene nel tuo corpo e che può essere anche fatto regredire. Questa energia che percorre tutto il tuo essere ripristina le tue capacità primordiali di recepire la gioia e la pace. Se sei sopravvissuto alla tua nascita, sopravviverai anche alla tua rinascita!"
-
-[Torna su](#navtop)
