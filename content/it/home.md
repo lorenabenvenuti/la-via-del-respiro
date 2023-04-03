@@ -1,5 +1,3 @@
-content: |
-
 La associazione Arbor Vitae è un team di operatori olistici, medici,
 psicologi e creativi culturali. Offre il frutto di anni di esperienza per una visione
 comune: l'espansione della coscienza e del benessere. Il progetto principale e quello di
