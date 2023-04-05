@@ -1,6 +1,6 @@
 > La vita non è un problema da risolvere ma una realtà da sperimentare.
 >
-> — Soren Kierkegaard
+> <cite>— Soren Kierkegaard </cite>
 
 # Formazione
 
