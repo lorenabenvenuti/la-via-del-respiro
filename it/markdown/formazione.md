@@ -12,11 +12,11 @@
 
 Creato da professionisti nell'ambito delle discipline bionaturali per migliorare il benessere a tutti i livelli attraverso lo studio e la pratica di svariate tecniche nel campo olistico ed offrire le basi professionali per chi desidera diventare un personal trainer olistico rebirther.
 
-Il corso si articola in nove weekend residenziali detti campus e nove giorni di campus estivo con la partecipazione e guida di Leonard Orr, fondatore della disciplina del breathwork, il quale assegnerà i diplomi dopo la verifica.
-
 ### Programma
 
-**Primo campus: Elemento aria, il soffio della vita**
+Il corso si articola in nove weekend residenziali detti campus e nove giorni di campus estivo con la partecipazione e guida di Leonard Orr, fondatore della disciplina del breathwork, il quale assegnerà i diplomi dopo la verifica.
+
+#### Primo campus: Elemento aria, il soffio della vita
 
 - Storia e basi della disciplina del breathwork
 - Nascita e personalità
@@ -34,7 +34,7 @@ Il corso si articola in nove weekend residenziali detti campus e nove giorni di 
 - L'arte perduta della preghiera
 - Medit'arte
 
-**Secondo campus: Elemento terra, il corpo è la mia terra**
+#### Secondo campus: Elemento terra, il corpo è la mia terra
 
 - Imparare a sentire a capire i messaggi del corpo
 - I riti tibetani
@@ -49,7 +49,7 @@ Il corso si articola in nove weekend residenziali detti campus e nove giorni di 
 - Suono-movimento-terapia
 - Medit'arte
 
-**Terzo campus: Elemento fuoco, la scintilla della vita**
+#### Terzo campus: Elemento fuoco, la scintilla della vita
 
 - La rabbia: permettersi di sentirla, capirne la forza creativa, trasformarla
 - La respirazione del fuoco
@@ -59,7 +59,7 @@ Il corso si articola in nove weekend residenziali detti campus e nove giorni di 
 - "Inipi" la capanna sudatoria, purificazione e preghiera in un rituale tradizionale degli indiani Lakota
 - Medit'arte
 
-**Quarto campus: Elemento Acqua, ritorno alle origini**
+#### Quarto campus: Elemento Acqua, ritorno alle origini
 
 - Le principali paure e le relazioni primarie
 - Relazioni di coppia, relazioni sacre
@@ -68,7 +68,7 @@ Il corso si articola in nove weekend residenziali detti campus e nove giorni di 
 - Rebirthing in acqua
 - Medit'arte
 
-**Campus Estivo di 9 giorni**
+#### Campus Estivo di 9 giorni
 
 - Sperimentare con la convivenza l'integrazione dei concetti e le tecniche acquisite a tutti i livelli del corpo, mente e spirito
 - Rigenerarsi con la natura in maniera benefica e gioiosa
