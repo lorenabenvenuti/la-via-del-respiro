@@ -1,5 +1,5 @@
 <blockquote>
-    Quando ci risvegliamo alla consapevolezza di poter migliorare la nostra vita non siamo più vittime,le sfide quotidiane diventano lezioni perfette ed il nostro cuore può cantare alla vita la gratitudine di esistere!
+    Quando ci risvegliamo alla consapevolezza di poter migliorare la nostra vita non siamo più vittime, le sfide quotidiane diventano lezioni perfette ed il nostro cuore può cantare alla vita la gratitudine di esistere!
     <footer>Lorena Tari Benvenuti</footer>
 </blockquote>
 

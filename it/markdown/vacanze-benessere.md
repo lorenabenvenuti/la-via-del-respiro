@@ -14,7 +14,7 @@ Viaggio di due settimane nei luoghi sacri dei Nativi Americani, nel Grand Canyon
 
 Weekend rigenerativo a contatto con la natura nel quale utilizzeremo discipline benefiche e piacevoli per migliorare la vera comunicazione e il vero contatto con se stessi e con l'altro.
 
-[Leggi di più...](/weekend-contatto)
+[Leggi di più...](/vacanze-benessere/weekend-contatto)
 
 ## Viaggi a tema in luoghi magici
 
