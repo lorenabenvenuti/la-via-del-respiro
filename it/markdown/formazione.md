@@ -1,5 +1,3 @@
-# Formazione
-
 ## Personal Trainer Olistico
 
 **PTO specializzato in Breathwork Rebirthing**
@@ -18,4 +16,22 @@ Una giornata di pratiche olistiche per sollevare la mente ed il corpo dal peso d
 
 Impara ad usare questo potente strumento di purificazione per trasformare la tua vita.
 
-[Leggi di più](/corso-base-di-rebirthing)
+[Leggi di più...](/corso-rebirthing)
+
+## Corso sull'autostima
+
+Il mondo esterno e il riflesso di quello interno. Migliora la tua vita migliorando il rapporto con te stesso.
+
+[Leggi di più...](/corso-autostima)
+
+## Corso gravidanza e parto consapevoli
+
+Comprendi come facilitare al massimo la nascita del tuo bebè favorendo la sua capacità di essere felice.
+
+[Leggi di più...](/corso-gravidanza)
+
+## Corso per ragazzi
+
+Facilita il rilascio emotivo e l'autostima.
+
+[Leggi di più...](/corso-ragazzi)
