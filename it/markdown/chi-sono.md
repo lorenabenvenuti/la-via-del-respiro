@@ -5,7 +5,7 @@
 
 _Rebirther Internazionale e Personal Trainer Olistico_
 
-![Lorena Benvenuti](/assets/images/tari.jpg)
+![Lorena Benvenuti](/assets/images/tari.jpg){.float-left}
 
 Salve!
 
