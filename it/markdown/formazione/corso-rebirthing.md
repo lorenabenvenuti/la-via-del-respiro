@@ -6,4 +6,4 @@ Il corso si articola in dieci incontri di tre ore l'uno nei quali si apprendono 
 
 Attualmente eseguo corsi base di rebirthing a: Salerno, Cava dei Tirreni (SA), Valenza (AL), Casale Monferrato (AL), Acqui Terme (AL), ed in qualsiasi altro luogo dove vi sia interesse in Italia e al estero.
 
-Per dettagli e maggiori informazioni [contattatemi](../contatto.md).
+Per dettagli e maggiori informazioni [contattatemi](../contatto).

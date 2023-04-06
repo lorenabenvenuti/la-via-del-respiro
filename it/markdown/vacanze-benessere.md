@@ -20,4 +20,4 @@ Weekend rigenerativo a contatto con la natura nel quale utilizzeremo discipline 
 
 Itenerari studiati con il proposito di sperimentare tecniche che inducono al benessere ed il contatto con il proprio SÈ. Da organizzare con gli interessati: privati, gruppi e agenzie di viaggio.
 
-Per dettagli e maggiori informazioni [contattatemi](../contatto.md).
+Per dettagli e maggiori informazioni [contattatemi](../contatto).

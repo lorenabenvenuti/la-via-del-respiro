@@ -8,4 +8,4 @@ Questo corso della durata dai dieci ai venti incontri pomeridiani propone di cre
 
 Induce alla stima di sè ed al rispetto altrui attraverso diversi tipi di esperienze che variano dal respiro consapevole ai suoni, al canto, al movimento, alla meditazione, alla danza, alla pittura, ecc.
 
-Per dettagli e maggiori informazioni [contattatemi](../contatto.md).
+Per dettagli e maggiori informazioni [contattatemi](../contatto).

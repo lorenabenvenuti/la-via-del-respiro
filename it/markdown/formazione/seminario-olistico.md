@@ -11,4 +11,4 @@ Seminari proposti:
 - Rebirthing e Shiatsu: una giornata di benessere dedicata allo sblocco di tensioni usando il respiro e lo Shiatsu
 - Rebirthing e Suono: la musica, il suono, la voce, il respiro. Esperienze vibrazionali, frequenze energetiche e profondo rilassamento.
 
-Per dettagli e maggiori informazioni [contattatemi](../contatto.md).
+Per dettagli e maggiori informazioni [contattatemi](../contatto).

@@ -6,4 +6,4 @@ Dieci incontri serali per imparare a riflettere sui principi e i comportamenti c
 
 Esercizi pratici e respirazione consapevole.
 
-Per dettagli e maggiori informazioni [contattatemi](../contatto.md).
+Per dettagli e maggiori informazioni [contattatemi](../contatto).
