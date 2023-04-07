@@ -1,4 +1,5 @@
-<blockquote> La vita non è un problema da risolvere ma una realtà da sperimentare.
+<blockquote>
+La vita non è un problema da risolvere ma una realtà da sperimentare.
 <footer>Soren Kierkegaard</footer>
 </blockquote>
 
@@ -83,4 +84,4 @@ Il corso si articola in nove weekend residenziali detti campus e nove giorni di 
 
 OM NAMAHA SHIVAYA
 
-Per dettagli e maggiori informazioni [contattateci](https://laviadelrespiro.com/contatto).
+Per dettagli e maggiori informazioni [contattatemi](/contatto).
