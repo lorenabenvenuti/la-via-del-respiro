@@ -1,6 +1,6 @@
-> La vita non è un problema da risolvere ma una realtà da sperimentare.
->
-> <cite>— Soren Kierkegaard </cite>
+<blockquote> La vita non è un problema da risolvere ma una realtà da sperimentare.
+<footer>Soren Kierkegaard</footer>
+</blockquote>
 
 # Personal Trainer Olistico
 

@@ -24,7 +24,7 @@ Itinerario (Può variare)
 
 Fai [click qui](/assets/images/mappaviaggio.jpg) per visualizzare la mappa.
 
-- rrivo a Phoenix, Arizona. Viaggio a Sedona in minibus.
+- Arrivo a Phoenix, Arizona. Viaggio a Sedona in minibus.
 - Esplorazione luoghi sacri di Sedona, pratiche di meditazione.
 - Viaggio verso Grand Canyon, visita veloce viste panoramiche.
 - Grand Canyon, pratiche di purificazione.
