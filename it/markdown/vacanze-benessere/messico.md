@@ -1,6 +1,6 @@
-## Viaggio alla scoperta del Messico magico dei Maya
-
 ![Affreschi di Bonampak](/assets/images/bonampak.jpg){.center}
+
+## Viaggio alla scoperta del Messico magico dei Maya
 
 _Un viaggio alla scoperta del misterioso e affascinante mondo dei Maya fra Messico e Guatemala._
 
