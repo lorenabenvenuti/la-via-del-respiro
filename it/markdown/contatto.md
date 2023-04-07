@@ -1,5 +1,5 @@
-**Lorena Benvenuti**
+**Lorena Benvenuti**{.center}
 
-breathworking@gmail.com
+breathworking@gmail.com{.center}
 
-+39 339 580 6637
++39 339 580 6637{.center}
