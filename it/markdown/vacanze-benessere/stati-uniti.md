@@ -1,6 +1,6 @@
 # Viaggio alla scoperta di se stessi nella terra dei Nativi Americani
 
-![Revolt Dancers](/assets/images/revoltdancers.jpg)
+![Revolt Dancers](/assets/images/revoltdancers.jpg){.float-right}
 
 In questo viaggio scopriremo i posti sacri dei nativi americani nel sud degli Stati Uniti. Accompagnati da Lorena Tari Benvenuti, personal trainer olistico specializzata in breathwork, conosceremo posti spettacolari e millenari come il Grand Canyon, parteciperemo in rituali antichi dei Nativi, e purificheremo noi stessi attraverso l'uso degli elementi naturali e di pratiche spirituali. Unisciti a questo gruppo per una vacanza indimenticabile.
 
@@ -18,7 +18,7 @@ Osa chiedere all’Universo! Anche nelle Sacre Scritture si legge - Chiedi e ti 
 
 In verità semplicità e amore Tari Lorena Benvenuti
 
-![Grand Canyon e Monument Valley](/assets/images/itinerario.jpg)
+![Grand Canyon e Monument Valley](/assets/images/itinerario.jpg){.float-left}
 
 Itinerario (Può variare)
 

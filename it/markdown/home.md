@@ -7,7 +7,7 @@ formare personal trainer olistici (PTO) specializzati in breathwork rebirthing.
 
 Il PTO è un tecnico del benessere che viene capacitato all'arte di equilibrare e migliorare
 la condizione fisica, emotiva e spirituale, propria ed altrui, attraverso l'utilizzo di
-discipline olistiche, tra le quali il [breathwork rebirthing](#rebirthing),
+discipline olistiche, tra le quali il [breathwork rebirthing](#rebirthing-breathwork),
 la meditazione in movimento, la kinesiologia emotiva
 e fisiognomica, tra altre.
 
