@@ -20,4 +20,4 @@ Partecipa a un viaggio di due settimane nei luoghi sacri dei Nativi Americani, t
 
 Itinerari personalizzati per vivere esperienze che favoriscono il benessere e il contatto con il proprio sé, in luoghi magici e affascinanti. Disponibile per privati, gruppi e da organizare insieme ad agenzie di viaggio.
 
-Per dettagli e maggiori informazioni [contattatemi](/contatto).
+Per dettagli e maggiori informazioni [contattami](/contatto).

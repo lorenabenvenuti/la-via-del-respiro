@@ -1,6 +1,6 @@
 # Scopri il Corso Base di Rebirthing: Trasforma la tua Vita attraverso la Respirazione
 
-Il nostro Corso Base di Rebirthing è studiato per introdurti a questa potente tecnica di purificazione che ti permetterà di trasformare la tua vita. Attraverso dieci incontri guidati da un professionista esperto, imparerai l'arte di respirare in maniera libera e circolare, decondizionando l'inconscio e favorendo il tuo benessere.
+Il Corso Base di Rebirthing è studiato per introdurti a questa potente tecnica di purificazione che ti permetterà di trasformare la tua vita. Attraverso dieci incontri guidati, imparerai l'arte di respirare in maniera libera e circolare, decondizionando l'inconscio e favorendo il tuo benessere.
 
 **Perché scegliere il nostro Corso Base di Rebirthing?**
 
@@ -21,6 +21,6 @@ Nel corso imparerai:
 
 **Unisciti a noi e trasforma la tua vita**
 
-Sei pronto a intraprendere un percorso di crescita personale e benessere? Unisciti al nostro Corso Base di Rebirthing e scopri come questa potente tecnica può migliorare la tua vita.
+Sei pronto a intraprendere un percorso di crescita personale e benessere? Unisciti al Corso Base di Rebirthing e scopri come questa potente tecnica può migliorare la tua vita.
 
 Per ulteriori informazioni sul corso e per iscriverti, [contattami](../contatto) Sarò felice di fornirti tutte le informazioni di cui hai bisogno.

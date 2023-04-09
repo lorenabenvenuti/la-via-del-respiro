@@ -1,6 +1,6 @@
 # Corso per Ragazzi: Sviluppare l'Autostima e Liberarsi dalle Tensioni
 
-Il nostro corso per ragazzi è pensato per offrire uno spazio sicuro e accogliente in cui bambini e adolescenti dai 9 ai 18 anni possano liberarsi dalle tensioni accumulate a scuola, in famiglia e nella società. Attraverso un percorso di dieci o venti incontri pomeridiani, i partecipanti impareranno a gestire lo stress e l'ansia, sviluppare l'autostima e il rispetto per gli altri.
+Il corso per ragazzi è pensato per offrire uno spazio sicuro e accogliente in cui bambini e adolescenti dai 9 ai 18 anni possano liberarsi dalle tensioni accumulate a scuola, in famiglia e nella società. Attraverso un percorso di dieci o venti incontri pomeridiani, i partecipanti impareranno a gestire lo stress e l'ansia, sviluppare l'autostima e il rispetto per gli altri.
 
 **Perché scegliere il nostro corso per ragazzi?**
 
@@ -22,6 +22,6 @@ Nel corso, i ragazzi avranno l'opportunità di sperimentare diverse attività, t
 
 **Favorisci l'armonia e il benessere dei giovani con il nostro Corso per Ragazzi**
 
-Se vuoi aiutare i tuoi figli a liberare le tensioni accumulate e a sviluppare l'autostima e il rispetto per gli altri, il nostro Corso per Ragazzi è la soluzione ideale. Attraverso varie attività pratiche ed esperienziali, offriamo un ambiente sicuro e stimolante per il loro sviluppo personale.
+Se vuoi aiutare i tuoi figli a liberare le tensioni accumulate e a sviluppare l'autostima e il rispetto per gli altri, il Corso per Ragazzi è la soluzione ideale. Attraverso varie attività pratiche ed esperienziali, offro un ambiente sicuro e stimolante per il loro sviluppo personale.
 
-Per avere maggiori informazioni sul corso e per iscrizioni, [clicca qui](../contatto) e invia la tua richiesta. Siamo a tua disposizione per rispondere a tutte le tue domande e per aiutarti a trovare il percorso più adatto alle loro esigenze.
+Per avere maggiori informazioni sul corso e per iscrizioni, [clicca qui](../contatto) e invia la tua richiesta. Sono a tua disposizione per rispondere a tutte le tue domande e per aiutarti a trovare il percorso più adatto alle loro esigenze.

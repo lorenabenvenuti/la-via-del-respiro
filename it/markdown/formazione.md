@@ -2,7 +2,7 @@
 
 **PTO specializzato in Breathwork Rebirthing**
 
-Intraprendi un percorso di crescita personale e formazione professionale per diventare un Personal Trainer Olistico specializzato in Breathwork Rebirthing e ottenere il patentino MSP CONI.
+Intraprendi un percorso di crescita personale e formazione professionale per diventare un Personal Trainer Olistico specializzato in Breathwork Rebirthing.
 
 [Scopri di più](/formazione/personal-trainer-olistico)
 

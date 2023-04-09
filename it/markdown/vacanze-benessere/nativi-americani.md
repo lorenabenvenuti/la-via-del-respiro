@@ -41,7 +41,7 @@ Il costo del viaggio è di 3500 euro e comprende:
 
 Il numero massimo di partecipanti è 8. Affrettati, perché più tempo passa, più aumenta il costo del biglietto aereo!
 
-Se sei interessato a questa vacanza emozionante, [invia il tuo nome e cognome](/contatto) il prima possibile per prenotare il biglietto.
+Se sei interessato a questa vacanza emozionante, [contattami](/contatto) il prima possibile per prenotare il biglietto.
 
 Osa chiedere all’Universo! Anche nelle Sacre Scritture si legge - Chiedi e ti sarà dato!
 ``

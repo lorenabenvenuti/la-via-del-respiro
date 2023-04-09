@@ -1,6 +1,6 @@
 # Ritiro Benessere Olistico sulla Costiera Amalfitana
 
-Immergiti in un'esperienza di benessere totale nella splendida Costiera Amalfitana, vicino alla città di Salerno. Il nostro ritiro olistico offre una combinazione di pratiche di respirazione consapevole, Rebirthing, yoga, meditazione, passeggiate nella natura, massaggi rilassanti, cibo delizioso e panorami mozzafiato.
+Immergiti in un'esperienza di benessere totale nella splendida Costiera Amalfitana, vicino alla città di Salerno. Il ritiro olistico offre una combinazione di pratiche di respirazione consapevole, Rebirthing, yoga, meditazione, passeggiate nella natura, massaggi rilassanti, cibo delizioso e panorami mozzafiato.
 
 ## Un'oasi di pace e tranquillità
 
@@ -19,13 +19,13 @@ Durante il ritiro, avrai l'opportunità di partecipare a diverse attività pensa
 
 ## Perché partecipare?
 
-Partecipando al nostro ritiro benessere olistico, potrai:
+Partecipando al ritiro benessere olistico, potrai:
 
 - Rigenerare corpo, mente e spirito in un ambiente sereno e rilassante
 - Imparare tecniche di respirazione, yoga e meditazione che potrai praticare anche a casa
 - Godere della bellezza e della tranquillità della Costiera Amalfitana
 - Conoscere persone che condividono la tua passione per il benessere e la crescita personale
 
-Non perdere l'opportunità di vivere un'esperienza unica e indimenticabile. Prenota il tuo posto nel nostro ritiro benessere olistico sulla Costiera Amalfitana oggi stesso!
+Non perdere l'opportunità di vivere un'esperienza unica e indimenticabile. Prenota il tuo posto nel mio ritiro benessere olistico sulla Costiera Amalfitana oggi stesso!
 
 [Contattaci per maggiori informazioni e prenotazioni](/contatto)

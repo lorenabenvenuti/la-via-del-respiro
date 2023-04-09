@@ -35,4 +35,4 @@ Per saperne di più, visita il sito di [Leonard Orr](http://www.rebirthingbreath
 
 Se sei pronto a trasformare la tua vita e sperimentare il potere del Rebirthing, prenota una sessione. [Contattami](/contatto) per fissare il tuo appuntamento di Rebirthing e iniziare il tuo percorso di crescita personale e liberazione emotiva.
 
-Non dimenticare di iscriverti alla nostra [newsletter](link-iscrizione) per ricevere aggiornamenti su eventi, corsi e altre terapie alternative offerte nel nostro centro. Seguici anche sui [social](link-social) per scoprire consigli, testimonianze e novità sul mondo delle terapie olistiche. {.hidden}
+Non dimenticare di iscriverti alla mia [newsletter](link-iscrizione) per ricevere aggiornamenti su eventi, corsi e altre terapie alternative che offro. Seguimi anche sui [social](link-social) per scoprire consigli, testimonianze e novità sul mondo delle terapie olistiche. {.hidden}

@@ -2,7 +2,7 @@
 
 Immergiti in una giornata di benessere e scopri il potere delle pratiche olistiche per alleviare lo stress e rinvigorire il tuo spirito.
 
-Il nostro **Seminario Olistico** si propone di offrirti un'esperienza unica e rigenerante. Durante questa giornata intensiva, avrai l'opportunità di esplorare la totalità del tuo essere attraverso diverse attività, tra cui il potente rebirthing-breathwork.
+Il **Seminario Olistico** si propone di offrirti un'esperienza unica e rigenerante. Durante questa giornata intensiva, avrai l'opportunità di esplorare la totalità del tuo essere attraverso diverse attività, tra cui il potente rebirthing-breathwork.
 
 **Esplora i vari seminari proposti:**
 
@@ -13,6 +13,6 @@ Il nostro **Seminario Olistico** si propone di offrirti un'esperienza unica e ri
 
 **Scopri il potere rigenerante del Seminario Olistico**
 
-Non lasciarti sfuggire questa opportunità unica di riscoprire l'armonia tra corpo e mente attraverso la partecipazione al nostro Seminario Olistico. Sperimenta le pratiche olistiche che ti aiuteranno a liberarti dalle tensioni accumulate nella vita quotidiana e a riscoprire il tuo benessere interiore.
+Non lasciarti sfuggire questa opportunità unica di riscoprire l'armonia tra corpo e mente attraverso la partecipazione al Seminario Olistico. Sperimenta le pratiche olistiche che ti aiuteranno a liberarti dalle tensioni accumulate nella vita quotidiana e a riscoprire il tuo benessere interiore.
 
-Per maggiori informazioni sul seminario e per iscriverti, [clicca qui](../contatto) e invia la tua richiesta. Il nostro team sarà lieto di fornirti tutte le informazioni necessarie e di guidarti nel processo di iscrizione. Non aspettare oltre, riscopri il tuo equilibrio e la tua serenità grazie al nostro Seminario Olistico.
+Per maggiori informazioni sul seminario e per iscriverti, [clicca qui](../contatto) e invia la tua richiesta. Sarò lieta di fornirti tutte le informazioni necessarie e di guidarti nel processo di iscrizione. Non aspettare oltre, riscopri il tuo equilibrio e la tua serenità grazie al Seminario Olistico.
