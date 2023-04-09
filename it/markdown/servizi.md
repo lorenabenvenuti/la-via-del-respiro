@@ -6,15 +6,21 @@ Ecco un breve riepilogo dei servizi che offro:
 
 ## Rebirthing
 
-Il Rebirthing è una disciplina yogica che insegna a rigenerarsi respirando la forza vitale presente nell'aria. Attraverso la respirazione consapevole e circolare, è possibile eliminare tensioni, blocchi emotivi e paure legate al passato, migliorando il benessere psicofisico. [Scopri di più](/servizi/rebirthing).
+Il Rebirthing è una disciplina yogica che insegna a rigenerarsi respirando la forza vitale presente nell'aria. Attraverso la respirazione consapevole e circolare, è possibile eliminare tensioni, blocchi emotivi e paure legate al passato, migliorando il benessere psicofisico.
+
+[Scopri di più](/servizi/rebirthing).
 
 ## Tetha Healing
 
-Tetha Healing è una tecnica di guarigione energetica che sfrutta la connessione con la coscienza universale per risolvere problemi fisici, emotivi e spirituali. Attraverso meditazioni guidate e visualizzazioni, si lavora sulle credenze limitanti e si manifesta una vita più equilibrata e felice. [Scopri di più](/servizi/tetha-healing).
+Tetha Healing è una tecnica di guarigione energetica che sfrutta la connessione con la coscienza universale per risolvere problemi fisici, emotivi e spirituali. Attraverso meditazioni guidate e visualizzazioni, si lavora sulle credenze limitanti e si manifesta una vita più equilibrata e felice.
+
+[Scopri di più](/servizi/tetha-healing).
 
 ## Massaggio olistico
 
-Il massaggio olistico è una pratica terapeutica che mira a promuovere il rilassamento, alleviare lo stress e migliorare la circolazione. Utilizzando tecniche di massaggio personalizzate e oli essenziali naturali, il mio massaggio olistico favorisce l'armonia tra corpo, mente e spirito. [Scopri di più](/servizi/massaggio-olistico).
+Il massaggio olistico è una pratica terapeutica che mira a promuovere il rilassamento, alleviare lo stress e migliorare la circolazione. Utilizzando tecniche di massaggio personalizzate e oli essenziali naturali, il mio massaggio olistico favorisce l'armonia tra corpo, mente e spirito.
+
+[Scopri di più](/servizi/massaggio-olistico).
 
 ---
 
