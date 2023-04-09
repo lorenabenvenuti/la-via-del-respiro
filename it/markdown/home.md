@@ -1,5 +1,5 @@
 <blockquote>
-Siamo venuti al mondo per servire l'amore. Tutto quello che facciamo, non importa quanto comune o banale possa sembrare, fa parte del nostro contributo all'evoluzione dell'umanità.
+Quando ci risvegliamo alla consapevolezza di poter migliorare la nostra vita non siamo più vittime, le sfide quotidiane diventano lezioni perfette ed il nostro cuore può cantare alla vita la gratitudine di esistere!
 <footer>
 Lorena Tari Benvenuti
 </footer>
@@ -25,7 +25,7 @@ In verità, semplicità e amore, Tari (nome spirituale datomi da [Baba Ji](https
 
 ---
 
-Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Scopri i miei servizi](/servizi), i vari [corsi di formazione](/corsi), e le [vacanze benessere](/vacanze-benessere) che propongo.
+Sei pronto a intraprendere il tuo percorso di trasformazione benefica e crescita personale? [Scopri i miei servizi](/servizi), i vari [corsi di formazione](/corsi), e le [vacanze benessere](/vacanze-benessere) che propongo.
 
 Non esitare a [contattarmi](/contatto) per maggiori informazioni e prenotazioni.
 
