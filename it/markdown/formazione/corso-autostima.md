@@ -2,7 +2,7 @@
 
 Scopri il corso sull'autostima, un percorso di dieci incontri serali pensato per aiutarti a migliorare il rapporto con te stesso e, di conseguenza, la tua vita. Attraverso esercizi pratici e respirazione consapevole, imparerai a riflettere sui principi e i comportamenti che favoriscono l'autostima e ti permetteranno di vivere una vita più felice e appagante.
 
-**Perché scegliere il nostro corso sull'autostima?**
+## Perché scegliere il nostro corso sull'autostima?
 
 In un mondo sempre più frenetico e competitivo, è fondamentale lavorare su noi stessi per aumentare la nostra autostima e migliorare il nostro benessere generale. Il corso ti offrirà:
 
@@ -11,7 +11,7 @@ In un mondo sempre più frenetico e competitivo, è fondamentale lavorare su noi
 - Un ambiente sicuro e accogliente per esplorare e affrontare le tue insicurezze
 - La possibilità di condividere esperienze e confrontarti con altre persone che stanno affrontando gli stessi problemi
 
-**Cosa aspettarti dal corso sull'autostima?**
+## Cosa aspettarti dal corso sull'autostima?
 
 Durante il corso, affronterai diverse tematiche legate all'autostima, tra cui:
 
@@ -20,7 +20,7 @@ Durante il corso, affronterai diverse tematiche legate all'autostima, tra cui:
 - I principi e i comportamenti che favoriscono l'autostima
 - Tecniche di respirazione consapevole per aumentare la consapevolezza di sé e la fiducia in sé stessi
 
-**Dai un nuovo slancio alla tua vita con il Corso sull'Autostima**
+## Dai un nuovo slancio alla tua vita con il Corso sull'Autostima
 
 Sei pronto a intraprendere un percorso di crescita personale e migliorare il tuo rapporto con te stesso? Iscriviti al Corso sull'Autostima e scopri come sviluppare la fiducia in te stesso e nelle tue capacità.
 

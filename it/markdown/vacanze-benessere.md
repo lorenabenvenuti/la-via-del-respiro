@@ -1,3 +1,7 @@
+# Vacanze Benessere
+
+Mi fa piacere darti il benvenuti nella sezione Vacanze Benessere, dove troverai una selezione di esperienze uniche e rigeneranti per il corpo, la mente e lo spirito. Unisciti a me in queste avventure olistiche per staccare dalla routine quotidiana, rilassarti, imparare nuove pratiche e riscoprire il benessere interiore. Scegli tra le mie proposte di vacanze benessere e immergiti in un'esperienza di profonda connessione con te stesso e con la natura che ti circonda.
+
 ## Ritiro benessere olistico
 
 Vivi un'esperienza di benessere a 360 gradi in un ritiro olistico che combina Rebirthing, yoga, meditazione, passeggiate nella natura, massaggi, delizioso cibo e panorami mozzafiato.

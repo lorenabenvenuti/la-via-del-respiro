@@ -2,7 +2,7 @@
 
 Il corso per ragazzi è pensato per offrire uno spazio sicuro e accogliente in cui bambini e adolescenti dai 9 ai 18 anni possano liberarsi dalle tensioni accumulate a scuola, in famiglia e nella società. Attraverso un percorso di dieci o venti incontri pomeridiani, i partecipanti impareranno a gestire lo stress e l'ansia, sviluppare l'autostima e il rispetto per gli altri.
 
-**Perché scegliere il nostro corso per ragazzi?**
+## Perché scegliere il nostro corso per ragazzi?
 
 Il corso offre:
 
@@ -11,7 +11,7 @@ Il corso offre:
 - Attività variegate, che spaziano dal respiro consapevole ai suoni, al canto, al movimento, alla meditazione, alla danza e alla pittura
 - Un approccio olistico che mira allo sviluppo dell'autostima e del rispetto altrui
 
-**Cosa aspettarti dal corso per ragazzi?**
+## Cosa aspettarti dal corso per ragazzi?
 
 Nel corso, i ragazzi avranno l'opportunità di sperimentare diverse attività, tra cui:
 
@@ -20,7 +20,7 @@ Nel corso, i ragazzi avranno l'opportunità di sperimentare diverse attività, t
 - Movimento e meditazione per migliorare la concentrazione e l'equilibrio interiore
 - Danza e pittura per stimolare la creatività e l'espressione personale
 
-**Favorisci l'armonia e il benessere dei giovani con il nostro Corso per Ragazzi**
+## Favorisci l'armonia e il benessere dei giovani con il nostro Corso per Ragazzi
 
 Se vuoi aiutare i tuoi figli a liberare le tensioni accumulate e a sviluppare l'autostima e il rispetto per gli altri, il Corso per Ragazzi è la soluzione ideale. Attraverso varie attività pratiche ed esperienziali, offro un ambiente sicuro e stimolante per il loro sviluppo personale.
 

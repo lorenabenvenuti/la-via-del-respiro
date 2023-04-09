@@ -4,11 +4,11 @@
 
 Partecipa a un'avventura indimenticabile nelle terre dei nativi americani nel sud degli Stati Uniti. Accompagnati da Lorena Tari Benvenuti, personal trainer olistico specializzata in breathwork, scopriremo luoghi sacri e spettacolari come il Grand Canyon, vivremo rituali antichi dei Nativi e ci purificheremo attraverso gli elementi naturali e pratiche spirituali. Unisciti a questo gruppo per una vacanza unica nel suo genere.
 
-**Perché scegliere un viaggio nelle terre dei Nativi Americani?**
+## Perché scegliere un viaggio nelle terre dei Nativi Americani?
 
 Lorena Tari Benvenuti ha trascorso 20 anni in Messico e 2 anni nel New Mexico (USA), conoscendo e apprezzando la saggezza millenaria dei nativi americani. Essi hanno resistito agli attacchi di una società materialista e autodistruttiva, testimoniando una vita basata sul contatto sacro con la Terra e il Grande Spirito. I luoghi che visiteremo sono carichi di energia e straordinaria bellezza, frequentati per millenni dalle etnie di tutto il continente americano per pellegrinaggi ed iniziazioni.
 
-**Itinerario del viaggio (soggetto a variazioni)**
+\*\*Itinerario del viaggio (soggetto a variazioni)
 
 ![Grand Canyon e Monument Valley](/assets/images/itinerario.jpg){.float-left}
 
@@ -28,7 +28,7 @@ Lorena Tari Benvenuti ha trascorso 20 anni in Messico e 2 anni nel New Mexico (U
 - Denver, Colorado
 - Rientro in Italia
 
-**Informazioni sul viaggio e costi**
+## Informazioni sul viaggio e costi
 
 Il costo del viaggio è di 3500 euro e comprende:
 

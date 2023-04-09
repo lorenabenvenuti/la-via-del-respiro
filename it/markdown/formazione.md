@@ -1,3 +1,7 @@
+# Formazione
+
+Benvenuti nella sezione Formazione, dove offro una varietà di corsi e programmi educativi per aiutarti a sviluppare le tue competenze e conoscenze nel campo del benessere olistico. I corsi sono progettati per guidarti attraverso un percorso di crescita personale e professionale, fornendoti gli strumenti e le tecniche necessarie per migliorare la tua vita e aiutare gli altri nel loro cammino verso l'armonia e l'equilibrio. Scopri i programmi di formazione e inizia il tuo viaggio di trasformazione oggi stesso.
+
 ## Personal Trainer Olistico
 
 **PTO specializzato in Breathwork Rebirthing**

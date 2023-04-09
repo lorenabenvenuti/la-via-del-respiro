@@ -2,19 +2,19 @@
 
 Scopri il corso di formazione professionale per diventare un Personal Trainer Olistico specializzato in Rebirthing Breathwork. Attraverso un percorso formativo di due anni, imparerai a lavorare con gli elementi naturali e a sviluppare una conoscenza profonda delle tecniche di respirazione per il benessere fisico, mentale e spirituale.
 
-**Elemento Fuoco: La Scintilla della Vita**
+## Elemento Fuoco: La Scintilla della Vita
 
 Durante questa fase del corso, esplorerai le relazioni primarie, l'autostima, le relazioni di coppia e la rabbia. Imparerai a trasformare queste emozioni attraverso l'energia sessuale e la forza creativa. Esperienza della capanna sudatoria INIPI e Rebirthing davanti al fuoco.
 
-**Elemento Acqua: Il Corpo Emozionale**
+## Elemento Acqua: Il Corpo Emozionale
 
 Imparerai tecniche varie per lo sblocco delle emozioni, capirle, accettarle e trasformarle. Arteterapia, Rebirthing in acqua calda e fredda e Maternage ti aiuteranno a lavorare sul tuo corpo emozionale.
 
-**Elemento Etere: Il Corpo Spirituale**
+## Elemento Etere: Il Corpo Spirituale
 
 In questa fase, approfondirai l'arte perduta della preghiera, mantra yoga, la legge dell'attrazione e la legge degli specchi. Scoprirai e migliorerai il contatto con il tuo Sé e svilupperai la coscienza planetaria, sentendoti connesso al tutto.
 
-**Il Programma di Formazione**
+## Il Programma di Formazione
 
 La qualifica di P.T.O. specializzato in Rebirthing Breathwork comprende:
 
