@@ -25,6 +25,8 @@ In verità, semplicità e amore, Tari (nome spirituale datomi da [Baba Ji](https
 
 ---
 
-Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Scopri i miei servizi](/servizi) e [contattami](/contatto) per prenotare la tua sessione.
+Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Scopri i miei servizi](/servizi), i vari [corsi di formazione](/corsi), e le [vacanze benessere](/vacanze-benessere) che propongo.
+
+Non esitare a [contattarmi](/contatto) per maggiori informazioni e prenotazioni.
 
 Seguimi sui [social](link-social) e iscriviti alla mia [newsletter](link-iscrizione) per rimanere aggiornato su eventi, corsi e promozioni speciali.{.hidden}
