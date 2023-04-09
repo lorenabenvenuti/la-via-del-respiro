@@ -1,89 +1,31 @@
-<blockquote>
-La vita non è un problema da risolvere ma una realtà da sperimentare.
-<footer>
-Soren Kierkegaard
-</footer>
-</blockquote>
+# Corsi di Formazione Professionale per Personal Trainer Olistico con Specializzazione in Rebirthing Breathwork
 
-# Personal Trainer Olistico
+Scopri i nostri esclusivi corsi di formazione professionale per diventare un Personal Trainer Olistico specializzato in Rebirthing Breathwork. Attraverso un percorso formativo di due anni, imparerai a lavorare con gli elementi naturali e a sviluppare una conoscenza profonda delle tecniche di respirazione per il benessere fisico, mentale e spirituale.
 
-**PTO specializzato in Breathwork Rebirthing**
+**Elemento Fuoco: La Scintilla della Vita**
 
-**Percorso di crescita personale e formazione professionale per il patentino MSP CONI di Personal Trainer Olistico specializzato in Breathwork Rebirthing.**
+Durante questa fase del corso, esplorerai le relazioni primarie, l'autostima, le relazioni di coppia e la rabbia. Imparerai a trasformare queste emozioni attraverso l'energia sessuale e la forza creativa. Esperienza della capanna sudatoria INIPI e Rebirthing davanti al fuoco.
 
-Creato da professionisti nell'ambito delle discipline bionaturali per migliorare il benessere a tutti i livelli attraverso lo studio e la pratica di svariate tecniche nel campo olistico ed offrire le basi professionali per chi desidera diventare un personal trainer olistico rebirther.
+**Elemento Acqua: Il Corpo Emozionale**
 
-## Programma
+Imparerai tecniche varie per lo sblocco delle emozioni, capirle, accettarle e trasformarle. Arteterapia, Rebirthing in acqua calda e fredda e Maternage ti aiuteranno a lavorare sul tuo corpo emozionale.
 
-Il corso si articola in nove weekend residenziali detti campus e nove giorni di campus estivo con la partecipazione e guida di Leonard Orr, fondatore della disciplina del breathwork, il quale assegnerà i diplomi dopo la verifica.
+**Elemento Etere: Il Corpo Spirituale**
 
-### Primo campus: Elemento aria, il soffio della vita
+In questa fase, approfondirai l'arte perduta della preghiera, mantra yoga, la legge dell'attrazione e la legge degli specchi. Scoprirai e migliorerai il contatto con il tuo Sé e svilupperai la coscienza planetaria, sentendoti connesso al tutto.
 
-- Storia e basi della disciplina del breathwork
-- Nascita e personalità
-- Le 5 grandi cause dell'infelicità
-- Rebirthing e quadro di nascita
-- Fisiologia del respiro
-- Respirazione ed emozioni
-- Iperventilazione e disturbi della respirazione
-- La tecnica del rebirthing
-- Seduta di rebirthing-breathwork
-- Il corpo mentale: tecniche per riconoscere e dissolvere i meccanismi del conscio e dell'inconscio
-- Arte-movimento-terapia
-- Mantra yoga
-- Uso creativo dei pensieri e dell'imaginazione
-- L'arte perduta della preghiera
-- Medit'arte
+**Il Programma di Formazione**
 
-### Secondo campus: Elemento terra, il corpo è la mia terra
+La qualifica di P.T.O. specializzato in Rebirthing Breathwork comprende:
 
-- Imparare a sentire a capire i messaggi del corpo
-- I riti tibetani
-- Basi di medicina tradizionale cinese
-- Anatomia dell'apparato respiratorio
-- Sblocco del Diaframma
-- Osservazione e miglioramento dell'atteggiamento posturale
-- I punti vitali di primo soccorso
-- Ginnastica isometrica
-- Basi nutrizione bilanciata
-- Esercizi di ricarica
-- Suono-movimento-terapia
-- Medit'arte
+- Un fine settimana al mese chiamato Campus per due anni in luoghi e strutture a contatto con la natura
+- 10 sedute individuali con una rebirther donna e 10 sedute individuali con un rebirther uomo della scuola Arbor Vitae
+- Un Campus estivo di 9 giorni con tutti gli insegnanti per approfondire i contenuti dei campus precedenti e conoscere il Codice Deontologico
 
-### Terzo campus: Elemento fuoco, la scintilla della vita
+Il corso è guidato da Lorena Tari Benvenuti, rebirther internazionale qualificata dal 1984 alla scuola del fondatore del metodo, Leonard Orr, negli USA. Lorena vanta numerose esperienze in campo olistico e sciamanico nei 20 anni vissuti in Messico, oltre a studi in Shiatzu e Tetha healing.
 
-- La rabbia: permettersi di sentirla, capirne la forza creativa, trasformarla
-- La respirazione del fuoco
-- L'energia sessuale e la sua conessione alla forza creativa
-- Kinesiologia emozionale e fisiognomica
-- Vivere l'esperienza del fuoco vivo
-- "Inipi" la capanna sudatoria, purificazione e preghiera in un rituale tradizionale degli indiani Lakota
-- Medit'arte
+**Iscriviti al nostro Corso di Personal Trainer Olistico con Specializzazione in Rebirthing Breathwork**
 
-### Quarto campus: Elemento Acqua, ritorno alle origini
+Non perdere l'opportunità di diventare un professionista qualificato nel campo del benessere olistico e del rebirthing breathwork. Il nostro corso ti fornirà le competenze e le conoscenze necessarie per aiutare gli altri a raggiungere la trasformazione personale e il benessere attraverso il potere del respiro.
 
-- Le principali paure e le relazioni primarie
-- Relazioni di coppia, relazioni sacre
-- Imparare a sentire le proprie emozioni, capirle, accettarle e trasformarle, psicodramma
-- Studio della mappe psicosomatiche e del quantum dynamics
-- Rebirthing in acqua
-- Medit'arte
-
-### Campus Estivo di 9 giorni
-
-- Sperimentare con la convivenza l'integrazione dei concetti e le tecniche acquisite a tutti i livelli del corpo, mente e spirito
-- Rigenerarsi con la natura in maniera benefica e gioiosa
-- Mettere in pratica le basi di nutrizione bilanciata per preparare ottimi pasti salutari e gustosi
-- Studio ed utilizzo dei cristalli per l'armonizzazione dei corpi energetici
-- Approfondimento di kinesiologia emozionale
-- Studio ed utilizzo dei rimedi floreali
-- Sedute di breathwork-rebirthing a contatto con gli elementi naturali
-- Constellazioni famigliari
-- Stimoli per il buon umore, scegliere di essere felici
-- Arte-terapia, approccio olistico all'uso di diverse attività artistiche
-- Danza la tua vita
-- Analisi ed autoanalisi del percorso e dei benefici ottenuti
-
-OM NAMAHA SHIVAYA
-
-Per dettagli e maggiori informazioni [contattatemi](/contatto).
+Dai il via alla tua nuova carriera e contribuisci all'espansione della coscienza, al benessere e allo spirito delle persone che ti circondano. [Clicca qui](../contatto) per richiedere maggiori informazioni e iscriverti al corso. Unisciti a noi nella missione di diffondere la pratica del rebirthing breathwork e di migliorare la qualità della vita di molti. Il tuo futuro come Personal Trainer Olistico ti aspetta!

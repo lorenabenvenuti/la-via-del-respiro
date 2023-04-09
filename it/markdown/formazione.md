@@ -2,36 +2,36 @@
 
 **PTO specializzato in Breathwork Rebirthing**
 
-Percorso di crescita personale e formazione professionale per il patentino MSP CONI di Personal Trainer Olistico specializzato in Breathwork Rebirthing.
+Intraprendi un percorso di crescita personale e formazione professionale per diventare un Personal Trainer Olistico specializzato in Breathwork Rebirthing e ottenere il patentino MSP CONI.
 
-[Leggi di più...](/formazione/personal-trainer-olistico)
+[Scopri di più](/formazione/personal-trainer-olistico)
 
 ## Seminario Olistico
 
-Una giornata di pratiche olistiche per sollevare la mente ed il corpo dal peso del quotidiano.
+Partecipa a una giornata intensiva di pratiche olistiche per sollevare la mente e il corpo dal peso del quotidiano e ritrovare l'equilibrio interiore.
 
-[Leggi di più...](/formazione/seminario-olistico)
+[Scopri di più](/formazione/seminario-olistico)
 
-## Corso base di rebirthing
+## Corso base di Rebirthing
 
-Impara ad usare questo potente strumento di purificazione per trasformare la tua vita.
+Impara a utilizzare il potente strumento del Rebirthing per purificare la tua energia vitale e trasformare la tua vita in modo profondo e duraturo.
 
-[Leggi di più...](/formazione/corso-rebirthing)
+[Scopri di più](/formazione/corso-rebirthing)
 
 ## Corso sull'autostima
 
-Il mondo esterno e il riflesso di quello interno. Migliora la tua vita migliorando il rapporto con te stesso.
+Il mondo esterno è il riflesso di quello interno. Migliora la tua vita migliorando il rapporto con te stesso attraverso un corso focalizzato sull'autostima e l'autoconsapevolezza.
 
-[Leggi di più...](/formazione/corso-autostima)
+[Scopri di più](/formazione/corso-autostima)
 
 ## Corso gravidanza e parto consapevoli
 
-Comprendi come facilitare al massimo la nascita del tuo bebè favorendo la sua capacità di essere felice.
+Preparati a vivere una gravidanza serena e un parto consapevole, favorendo la nascita del tuo bebè e il suo futuro benessere e felicità.
 
-[Leggi di più...](/formazione/corso-gravidanza)
+[Scopri di più](/formazione/corso-gravidanza)
 
 ## Corso per ragazzi
 
-Facilita il rilascio emotivo e l'autostima.
+Supporta i giovani nel rilascio emotivo e nel potenziamento dell'autostima, offrendo loro strumenti per affrontare le sfide della vita con forza e determinazione.
 
-[Leggi di più...](/formazione/corso-ragazzi)
+[Scopri di più](/formazione/corso-ragazzi)
