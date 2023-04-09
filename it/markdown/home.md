@@ -22,4 +22,6 @@ In verità, semplicità e amore, Lorena, Tari (nome spirituale datomi da Baba Ji
 
 ---
 
-Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Scopri i miei servizi](link-servizi) e [contattami](link-contatto) per prenotare la tua sessione. Seguimi sui [social](link-social) e iscriviti alla mia [newsletter](link-iscrizione) per rimanere aggiornato su eventi, corsi e promozioni speciali.
+Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Scopri i miei servizi](/servizi) e [contattami](/contatto) per prenotare la tua sessione.
+
+Seguimi sui [social](link-social) e iscriviti alla mia [newsletter](link-iscrizione) per rimanere aggiornato su eventi, corsi e promozioni speciali.{.hidden}

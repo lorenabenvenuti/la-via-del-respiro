@@ -18,6 +18,6 @@ Il massaggio olistico è una pratica terapeutica che mira a promuovere il rilass
 
 ---
 
-Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Contattami](link-contatto) per discutere quale terapia sia più adatta alle tue esigenze e per prenotare la tua sessione.
+Sei pronto a intraprendere il tuo percorso di guarigione e crescita personale? [Contattami](/contatto) per discutere quale terapia sia più adatta alle tue esigenze e per prenotare la tua sessione.
 
 Seguimi sui [social](link-social) e iscriviti alla mia [newsletter](link-iscrizione) per rimanere aggiornato su eventi, corsi e promozioni speciali.{.hidden}
