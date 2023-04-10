@@ -23,12 +23,12 @@ Durante il ritiro, avrai l'opportunità di partecipare a diverse attività pensa
 
 Partecipando al ritiro benessere olistico, potrai:
 
+![Confronto](/assets/images/danza.jpg){.float-left}
+
 - Rigenerare corpo, mente e spirito in un ambiente sereno e rilassante
 - Imparare tecniche di respirazione, yoga e meditazione che potrai praticare anche a casa
 - Godere della bellezza e della tranquillità della Costiera Amalfitana
 - Conoscere persone che condividono la tua passione per il benessere e la crescita personale
-
-![Confronto](/assets/images/danza.jpg){.float-right}
 
 Non perdere l'opportunità di vivere un'esperienza unica e indimenticabile. Prenota il tuo posto nel mio ritiro benessere olistico sulla Costiera Amalfitana oggi stesso!
 
