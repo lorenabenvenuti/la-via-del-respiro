@@ -1,6 +1,6 @@
 # I miei servizi
 
-Benvenuti nel mio spazio terapeutico, dove offro una gamma di terapie alternative per promuovere il benessere e la crescita personale. Le terapie sono personalizzate in base alle esigenze di ogni individuo e mirano a fornire una profonda trasformazione benefica, armonia e rinnovamento.
+Benvenuti nel mio spazio terapeutico, dove offro una gamma di discipline alternative per promuovere il benessere e la crescita personale. Le discipline sono personalizzate in base alle esigenze di ogni individuo e mirano a fornire una profonda trasformazione benefica, armonia e rinnovamento.
 
 Ecco un breve riepilogo dei servizi che offro:
 

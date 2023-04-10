@@ -23,6 +23,6 @@ In questo stato, lavoro con te per identificare e liberare blocchi energetici, t
 
 Se sei pronto a scoprire i benefici del Theta Healing e a intraprendere un percorso di trasformazione benefica e trasformazione personale, prenota una sessione. [Clicca qui](/contatto) per prenotare la tua sessione di Theta Healing e iniziare il tuo viaggio verso una vita più felice e equilibrata.
 
-Non dimenticare di iscriverti alla nostra [newsletter](link-iscrizione) per ricevere informazioni su eventi, workshop e altre terapie olistiche che offro. Seguimi anche sui [social media](link-social) per rimanere aggiornato sulle ultime novità nel mondo del Theta Healing e della trasformazione benefica energetica.{.hidden}
+Non dimenticare di iscriverti alla nostra [newsletter](link-iscrizione) per ricevere informazioni su eventi, workshop e altre discipline olistiche che offro. Seguimi anche sui [social media](link-social) per rimanere aggiornato sulle ultime novità nel mondo del Theta Healing e della trasformazione benefica energetica.{.hidden}
 
 Lasciati guidare dall'energia universale e scopri il potere del Theta Healing per trasformare la tua vita e il tuo benessere.

@@ -23,4 +23,4 @@ Utilizzando un approccio personalizzato e integrato, lavoro con te per individua
 
 Se desideri vivere i benefici del massaggio olistico e immergerti in un'esperienza di benessere e rilassamento autentico, prenota una sessione con uno dei nostri terapeuti qualificati. [Contattami](/contatto) per fissare il tuo appuntamento di massaggio olistico e dare il via al tuo percorso di armonia interiore.
 
-Assicurati di iscriverti alla [newsletter](link-iscrizione) per restare aggiornato su eventi, corsi e altre terapie olistiche che offro. Seguimi anche sui [social](link-social) per scoprire consigli, testimonianze e novità sul mondo delle terapie alternative.{.hidden}
+Assicurati di iscriverti alla [newsletter](link-iscrizione) per restare aggiornato su eventi, corsi e altre discipline olistiche che offro. Seguimi anche sui [social](link-social) per scoprire consigli, testimonianze e novità sul mondo delle discipline alternative.{.hidden}
