@@ -10,6 +10,8 @@ La Costiera Amalfitana è conosciuta per i suoi paesaggi meravigliosi, la ricca 
 
 Durante il ritiro, avrai l'opportunità di partecipare a diverse attività pensate per il tuo benessere:
 
+![Yoga](/assets/images/yoga.jpg){.float-right}
+
 - **Respiro consapevole e Rebirthing**: scopri il potere del respiro consapevole e sperimenta il Rebirthing, una tecnica di respirazione profonda e rilassante che ti aiuterà a liberarti dalle tensioni e dalle emozioni negative.
 - **Yoga**: pratica yoga all'aperto, circondato dalla bellezza della Costiera Amalfitana. Le lezioni sono adatte a tutti i livelli, dai principianti agli esperti.
 - **Meditazione**: impara a meditare e a sviluppare una maggiore consapevolezza di te stesso e del mondo che ti circonda.
@@ -25,6 +27,8 @@ Partecipando al ritiro benessere olistico, potrai:
 - Imparare tecniche di respirazione, yoga e meditazione che potrai praticare anche a casa
 - Godere della bellezza e della tranquillità della Costiera Amalfitana
 - Conoscere persone che condividono la tua passione per il benessere e la crescita personale
+
+![Confronto](/assets/images/danza.jpg){.float-right}
 
 Non perdere l'opportunità di vivere un'esperienza unica e indimenticabile. Prenota il tuo posto nel mio ritiro benessere olistico sulla Costiera Amalfitana oggi stesso!
 

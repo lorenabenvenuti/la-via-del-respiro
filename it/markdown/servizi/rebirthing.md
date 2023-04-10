@@ -18,6 +18,8 @@ Praticare il respiro consapevole permette di:
 
 La tecnica utilizza una respirazione consapevole e circolare, che permette di accedere al subconscio e liberarsi da traumi ed emozioni passate. Si pratica attraverso:
 
+![Rebirthing in aqcua](/assets/images/rebirthing-acqua.jpg){.float-right}
+
 - Sedute individuali
 - Sedute di gruppo
 - Sedute in acqua calda
