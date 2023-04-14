@@ -2,17 +2,27 @@
 
 Scopri il corso di formazione professionale per diventare un Personal Trainer Olistico specializzato in Rebirthing Breathwork. Attraverso un percorso formativo di due anni, imparerai a lavorare con gli elementi naturali e a sviluppare una conoscenza profonda delle tecniche di respirazione per il benessere fisico, mentale e spirituale.
 
-## Elemento Fuoco: La Scintilla della Vita
+Il nostro corso di formazione si articola in diverse materie di studio e pratica, suddivise per elementi naturali:
 
-Durante questa fase del corso, esplorerai le relazioni primarie, l'autostima, le relazioni di coppia e la rabbia. Imparerai a trasformare queste emozioni attraverso l'energia sessuale e la forza creativa. Esperienza della capanna sudatoria INIPI e Rebirthing davanti al fuoco.
+### Elemento Aria
 
-## Elemento Acqua: Il Corpo Emozionale
+Il respiro circolare Rebirthing, studio e sblocco del respiro, i principali traumi infantili, il trauma di nascita, concepimento, gravidanza e parto consapevoli, sedute individuali e di gruppo a contatto con gli elementi naturali, il corpo mentale, tecniche per lo sblocco dei pensieri inconsci, corso base di Tetha healing.
 
-Imparerai tecniche varie per lo sblocco delle emozioni, capirle, accettarle e trasformarle. Arteterapia, Rebirthing in acqua calda e fredda e Maternage ti aiuteranno a lavorare sul tuo corpo emozionale.
+### Elemento Terra
 
-## Elemento Etere: Il Corpo Spirituale
+Il corpo fisico, liberare il corpo dalle tensioni fisiche e blocchi emotivi attraverso danza, movimento terapia, yoga, arti marziali, suoni, musica, canto, i meridiani energetici, osservazione e miglioramento dell'atteggiamento posturale, ecologia applicata, studio e utilizzo dei cristalli per l'armonizzazione dei corpi energetici.
 
-In questa fase, approfondirai l'arte perduta della preghiera, mantra yoga, la legge dell'attrazione e la legge degli specchi. Scoprirai e migliorerai il contatto con il tuo Sé e svilupperai la coscienza planetaria, sentendoti connesso al tutto.
+### Elemento Fuoco
+
+Le relazioni primarie, l'autostima, relazioni di coppia, la rabbia e la sua forza creativa, l'energia sessuale, esperienza della capanna sudatoria INIPI, Rebirthing davanti al fuoco.
+
+### Elemento Acqua
+
+Tecniche per lo sblocco delle emozioni, arteterapia, Rebirthing in acqua calda e fredda, Maternage.
+
+### Elemento Etere
+
+Il corpo spirituale, l'arte perduta della preghiera, mantra yoga, la legge dell'attrazione, la legge degli specchi, medit'arte, sviluppo della coscienza planetaria.
 
 ## Il Programma di Formazione
 
