@@ -1,6 +1,6 @@
 # I miei servizi
 
-Benvenuti nel mio spazio terapeutico, dove offro una gamma di discipline alternative per promuovere il benessere e la crescita personale. Le discipline sono personalizzate in base alle esigenze di ogni individuo e mirano a fornire una profonda trasformazione benefica, armonia e rinnovamento.
+Benvenuti nel mio spazio del benessere, dove offro una gamma di discipline alternative per promuovere il benessere e la crescita personale. Le discipline sono personalizzate in base alle esigenze di ogni individuo e mirano a fornire una profonda trasformazione benefica, armonia e rinnovamento.
 
 Ecco un breve riepilogo dei servizi che offro:
 
@@ -18,7 +18,7 @@ Tetha Healing è una tecnica di trasformazione benefica energetica che sfrutta l
 
 ## Massaggio olistico
 
-Il massaggio olistico è una pratica terapeutica che mira a promuovere il rilassamento, alleviare lo stress e migliorare la circolazione. Utilizzando tecniche di massaggio personalizzate e oli essenziali naturali, il mio massaggio olistico favorisce l'armonia tra corpo, mente e spirito.
+Il massaggio olistico mira a promuovere il rilassamento, alleviare lo stress e migliorare la circolazione. Utilizzando tecniche di massaggio personalizzate e oli essenziali naturali, il mio massaggio olistico favorisce l'armonia tra corpo, mente e spirito.
 
 [Scopri di più](/servizi/massaggio-olistico).
 

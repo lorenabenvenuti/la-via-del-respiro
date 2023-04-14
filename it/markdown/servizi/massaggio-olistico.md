@@ -1,6 +1,6 @@
 # Massaggio Olistico: Un Viaggio di Benessere per Corpo, Mente e Spirito
 
-Il massaggio olistico è una disciplina manuale che integra diverse tecniche di massaggio per armonizzare corpo, mente e spirito, promuovendo un profondo senso di benessere e rilassamento. Scopri come questa pratica terapeutica può aiutarti a liberarti dalle tensioni accumulate, migliorare la tua energia vitale e ritrovare l'equilibrio interiore.
+Il massaggio olistico è una disciplina manuale che integra diverse tecniche di massaggio per armonizzare corpo, mente e spirito, promuovendo un profondo senso di benessere e rilassamento. Scopri come questa pratica può aiutarti a liberarti dalle tensioni accumulate, migliorare la tua energia vitale e ritrovare l'equilibrio interiore.
 
 ## I benefici del massaggio olistico
 
@@ -21,6 +21,6 @@ Utilizzando un approccio personalizzato e integrato, lavoro con te per individua
 
 ## Inizia il tuo percorso di benessere con il massaggio olistico
 
-Se desideri vivere i benefici del massaggio olistico e immergerti in un'esperienza di benessere e rilassamento autentico, prenota una sessione con uno dei nostri terapeuti qualificati. [Contattami](/contatto) per fissare il tuo appuntamento di massaggio olistico e dare il via al tuo percorso di armonia interiore.
+Se desideri vivere i benefici del massaggio olistico e immergerti in un'esperienza di benessere e rilassamento autentico, prenota una sessione. [Contattami](/contatto) per fissare il tuo appuntamento di massaggio olistico e dare il via al tuo percorso di armonia interiore.
 
 Assicurati di iscriverti alla [newsletter](link-iscrizione) per restare aggiornato su eventi, corsi e altre discipline olistiche che offro. Seguimi anche sui [social](link-social) per scoprire consigli, testimonianze e novità sul mondo delle discipline alternative.{.hidden}
