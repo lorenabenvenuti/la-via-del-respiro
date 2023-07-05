@@ -7,6 +7,7 @@ Sarò felice di rispondere a tutte le tue domande sui corsi e seminari, e di gui
 Per maggiori informazioni, non esitare a metterti in contatto via telefonica o su Whatsapp:
 
 **Telefono:** +39 339 580 6637
+
 **E-mail:** breathworking@gmail.com
 
 Se preferisci, puoi anche compilare il modulo sottostante e ti risponderò al più presto possibile.{.hidden}
